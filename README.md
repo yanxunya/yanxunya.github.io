@@ -1,4 +1,4 @@
-# 专业自媒体运营者的秘密武器：每日大赛-MediaPro自媒体运营，一站式内容创作解决方案
+# [专业自媒体运营者的秘密武器：每日大赛-MediaPro自媒体运营，一站式内容创作解决方案](https://mrdsc.gitbook.io/mrdsc-docs/)
 
 # [每日大赛-MediaPro自媒体](https://saishi.selfmediastudio.cc): https://saishi.selfmediastudio.cc
 
